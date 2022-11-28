@@ -1,1 +1,1 @@
-Hi, I’m Mitch. I'm passionate about suicide prevention, and my mission is to implement national strategies to prevent, predict, and reduce suicides using public health and psychological research methods, particularly for youngsters.
+Hi, I’m Mitch. I'm passionate about suicide prevention, and my research focuses on studying and implementing national strategies to prevent, predict, and reduce suicides, particularly for youngsters. I typically like to do this using psychological, educational, public health, and/or economic research methods.

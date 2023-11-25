@@ -1,1 +1,1 @@
-I'm passionate about suicide prevention, and my research focuses on studying and implementing national strategies to prevent, predict, and reduce suicides, particularly for youngsters. I typically like to do this using psychological, educational, public health, and/or economic research methods.
+I'm passionate about suicide prevention, and my research focuses on understanding suicidal thoughts and behavior , particularly for youngsters. I typically like to do this using psychological, educational, public health, and/or economic research methods.
